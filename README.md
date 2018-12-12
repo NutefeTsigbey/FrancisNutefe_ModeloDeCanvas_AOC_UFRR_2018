@@ -1,1 +1,0 @@
-# NutefeTsigbey_FrancisNutefe_ModeloDeCanvas_AOC_UFRR_2018
